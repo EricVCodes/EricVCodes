@@ -1,2 +1,2 @@
-Aspiring software engineer
+Aspiring software engineer  
 Student at University of Victoria
